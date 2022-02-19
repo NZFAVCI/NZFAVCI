@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @NZFAVCI
+- 👀 I’m interested in learning
+- 📫 nazifavci@gmail.com
